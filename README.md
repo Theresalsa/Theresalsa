@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Theresalsa, theCuriousCat; welcome to my GitHub!
-- 👀 I’m interested in cooking, exploring new restuarants, skiing, and riding the technology tide :)
+- 👀 I’m interested in collecting cat memes, cooking, exploring new restuarants, skiing, and riding the technology tide :)
 - 🌱 I’m currently learning ... (too many to list out :) I'm always learning, experimenting, and improving)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? Feel fre to EMAIL me at theresapan27@gmail.com, and please stay tuned for my personal website :))
