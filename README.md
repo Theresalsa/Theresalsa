@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Theresalsa
+- 👋 Hi, I’m @Theresalsa, theCuriousCat; welcome to my GitHub!
 - 👀 I’m interested in cooking, exploring new restuarants, skiing, and riding the technology tide :)
 - 🌱 I’m currently learning ... (too many to list out :) I'm always learning, experimenting, and improving)
 - 💞️ I’m looking to collaborate on ...
